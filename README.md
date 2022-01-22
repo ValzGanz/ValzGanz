@@ -3,7 +3,7 @@
 - 🌱 Gw, Masih Belajar Coding Jadi Maklum Kalo Cepu:V
 - 💞️ Gw, Masih Umur 17 Tahun
 - 📫 Hubungi Gw Lewat Email vallzganzz@gmail.com:V
-- 🛐 WA : wa.me/+6285863725673
+- 🛐 WA : https://wa.me/+6285863725673
 - 🤖 YT : PALZZ
 - 🗿 AJARIN CODING DONG KACK:V🗿
 
